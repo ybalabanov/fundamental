@@ -1,1 +1,1 @@
-# fundamental
+# fundamental - Yordan - Novi pazar - 27
